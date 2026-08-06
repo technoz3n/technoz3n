@@ -5,4 +5,4 @@ you can find whatever the hell i do here :3
 too lazy to type em out, check out [my website](https://technoz3n.nekoweb.org/) instead to find me
 
 <sub>[dont click](https://technoz3n.nekoweb.org/bwoi.mp4)</sub>
-<sub>[absolutely click this]</sub>
+(absolutely click this)
