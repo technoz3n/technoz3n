@@ -6,11 +6,10 @@ i specialize in making hyper niche things for issues or stuff nobody really need
 - i cant program from scratch i specialize in remixing or forking other peoples work or using foss stuff
 - i have a bad habit of customizing everything to my little liking
 
-![me](reaction.png)
 
 
 > [!WARNING]
-> maow
+> [me](reaction.png)
 
 # socials
 
