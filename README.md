@@ -9,8 +9,10 @@ i specialize in making hyper niche things for issues or stuff nobody really need
 
 
 > [!WARNING]
-> [me](reaction.png)
+> [!i am not a cat]
 
+[me](reaction.png)
+ 
 # socials
 
 too lazy to type em out, check out [my website](https://technoz3n.nekoweb.org/) instead to find me mainly wherever
