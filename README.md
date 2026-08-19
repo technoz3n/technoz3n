@@ -9,9 +9,9 @@ i specialize in making hyper niche things for issues or stuff nobody really need
 
 
 > [!WARNING]
-> [!i am not a cat]
+> [i am not a cat]
 
-[me](reaction.png)
+![me](reaction.png)
  
 # socials
 
