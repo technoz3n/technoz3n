@@ -15,6 +15,5 @@ i specialize in making hyper niche things for issues or stuff nobody really need
  
 # socials
 
-too lazy to type em out, check out [my website](https://technoz3n.nekoweb.org/) instead to find me mainly wherever
+too lazy to type em out, check out [my website](https://technoz3n.is-a.dev/) instead to find me mainly wherever
 
-<sub>[dont click (absolutely click)](https://technoz3n.nekoweb.org/bwoi.mp4)</sub>
